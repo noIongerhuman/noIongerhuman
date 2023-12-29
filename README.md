@@ -1,3 +1,3 @@
 <h1 align="center">　　. †　◞　</h1>
-<h3 align="center">MORGUE . RASHO</h3>
-<img align=[](https://i.pinimg.com/564x/e5/a2/19/e5a219464698412dbc4d9aded92a6f3c.jpg)
+<h3 align="center">MORGUE　.　RASHO</h3>
+<p align="center"> <img src="https://i.pinimg.com/564x/e5/a2/19/e5a219464698412dbc4d9aded92a6f3c.jpg" alt="sighs">
