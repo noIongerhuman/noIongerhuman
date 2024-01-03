@@ -1,6 +1,6 @@
 <h1 align="center">　　. †　◞　</h1>
 <h3 align="center"> MORGUE　.　VERA</h3>
-<p align="center"> <img src="https://files.catbox.moe/7dlizb.jpg" alt="sighs">
+<p align="center"> <img src="https://files.catbox.moe/0pr801.jpg" alt="sighs">
 <h4 align="center"> no　prns　ﾉ　it　ﾉ　void　
 <p align="center"> i love my bf :3　. .　usually offtab
 <p align="center">　
