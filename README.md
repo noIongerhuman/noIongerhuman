@@ -1,8 +1,9 @@
-<h1 align="center">　　. †　◞　</h1>
-<h3 align="center"> MORGUE　<img src="https://cdn.discordapp.com/attachments/985570867268431892/1039962548746850324/f628d6f9.gif">　DAZAI</h3>
-<p align="center"> <img src="https://files.catbox.moe/0pr801.jpg" alt="sighs">
+<p align="center"> <img src="https://64.media.tumblr.com/ea2523c401e71f693e4e95c78e69ae9e/321e7a9f1b73fb1e-28/s2048x3072/fafb765ad6fe7fc1854abc96f15142c26e5b9c63.pnj" width="500">
+<h3 align="center">　　. <img src="https://vermillion.drr.ac/assets/images/gallery01/bed0f037.gif?v=7ca7602c">　◞　
+<h3 align="center"> <img src="https://files.catbox.moe/esvmdn.png" width="67">　<img src="https://cdn.discordapp.com/attachments/985570867268431892/1039962548746850324/f628d6f9.gif">　<img src="https://files.catbox.moe/eldeam.png" width="50"> </h3>
+<p align="center"> <img src="https://files.catbox.moe/xk3xsb.webp" width="400">
 <h4 align="center"> no　prns　ﾉ　it　ﾉ　void　
 <p align="center"> kolya's dazai :3　. .　usually offtab
 <p align="center">　
-<p align="center"> <img src="https://64.media.tumblr.com/bad6c20226b3e46830f5d3f14f0dc0cb/043b3b79b6f9e438-22/s100x200/a9253054ab393b962ef257f8b87ef9dedfd01fc7.png"> <img src="https://64.media.tumblr.com/ab85edc0cf776f5fda2c93b7c3a551fe/043b3b79b6f9e438-74/s100x200/ce475f656e84b4e16c175c3c1b8546808fb7b60f.png">
-<p align="center"> <img src="https://64.media.tumblr.com/45ea6473afe650602a733306af6c0b90/c3ae5378fa1764af-9f/s250x400/8ab2a18ad2f3f38f94cd9ef7a5d9ee57fde042c8.gifv">
+<p align="center"> <img src="https://64.media.tumblr.com/ba78c15fc73aa64aa8a2301e5ba88045/8879ae4ec4586764-a5/s640x960/a7bb65985215cf5348165c6825391bf746856642.gifv" width="200">
+<p align="center"> <img src="https://64.media.tumblr.com/27e686ca1c2ab2352a0c4c51848e5415/321e7a9f1b73fb1e-0e/s2048x3072/27a6180db6edcaf8785a0f56379e8f643edad28a.pnj" width="500">
