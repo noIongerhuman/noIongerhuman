@@ -1,5 +1,5 @@
 <h1 align="center">　　. †　◞　</h1>
-<h3 align="center"> MORGUE　.　DAZAI</h3>
+<h3 align="center"> MORGUE　<img src="https://cdn.discordapp.com/attachments/985570867268431892/1039962548746850324/f628d6f9.gif">　DAZAI</h3>
 <p align="center"> <img src="https://files.catbox.moe/0pr801.jpg" alt="sighs">
 <h4 align="center"> no　prns　ﾉ　it　ﾉ　void　
 <p align="center"> kolya's dazai :3　. .　usually offtab
