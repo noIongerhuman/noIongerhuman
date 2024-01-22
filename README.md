@@ -7,5 +7,5 @@
 <p align="center"> kolya's dazai :3　<img src="https://i.postimg.cc/J4qZdZP5/IMG-2166.gif" width="25">　< kolya 19.01 3
 <p align="center"> usually offtab　. .　whisp 2 int 
 <p align="center">　　　　　　　　　　　　　　　　　 　<img src="https://files.catbox.moe/ym3vf3.png">
-<p align="center">
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/781519581088841738/1198936953681346691/100604-ezgif.com-overlay.gif?ex=65c0b80c&is=65ae430c&hm=ba797048bff462589cc68bcb8209f688449caea649ef627911ef10df5ecfc0b6&">
 <p align="center"> <img src="https://64.media.tumblr.com/7b5b108d3a33745bcea57222d480208e/0164cc8d2468c48a-b9/s1280x1920/6a38018f9794b0129ff3b14179c1346b6ce01712.pnj" width="500">
