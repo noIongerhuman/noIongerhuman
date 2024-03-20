@@ -1,3 +1,3 @@
-dazai / morgue ++ no prns it
+<p align="center"> dazai / morgue ++ no prns it
 
-ion rlly play this game much anymore
+<p align="center"> ion rlly play this game much anymore
