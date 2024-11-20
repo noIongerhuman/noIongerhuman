@@ -1,4 +1,4 @@
-dazai / morgue ++ no prns it
+@@ -8,28 +8,28 @@
 
 ion rlly play this game much anymore
 
